@@ -4,7 +4,7 @@ Delani studios
 
 ## Author
 
-[Owiti-Charles](https://github.com/mutheuprecious)
+[precious mutheu](https://github.com/mutheuprecious)
 
 ## Description
 
